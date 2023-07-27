@@ -1,6 +1,6 @@
 # 💻 Sean Aaron Bowers 💻
 
-##`Self-taught & Passionationate IT, Cybersecurity, & Linux Professional`##
+**`Self-taught & Passionationate IT, Cybersecurity, & Linux Professional`**
 
 ---
 
